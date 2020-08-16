@@ -1,7 +1,7 @@
 ### Hi, Cuuuuuuuuuuuuuuuuuuuuuuuuuute 🐲 is here 👋
 Welcome to my github page.  
 🌱 I’m a rookie in any aspect.  
-😭 Yeah! i don't have my **girlfriend**!!!! QAQ  
+😭 Yeah! i don't have **girlfriend**!!!! QAQ  
 
 
 
